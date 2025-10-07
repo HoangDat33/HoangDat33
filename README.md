@@ -1,2 +1,2 @@
 
-👤 Hoang Tien Dat<br>📖 FPT University<br>🧑‍💻 Software Engineer!
+👤 Hoang Tien Dat<br>📖 FPT University<br>🧑‍💻 Software Engineer
